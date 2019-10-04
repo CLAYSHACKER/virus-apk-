@@ -1,2 +1,3 @@
-# virus-apk-
-Bueno amigos les traigo este Script para enviar virus 
+# virus-apk
+:) CLAYS HACKER 
+NGUNGUN SISTEMA ES SEGURO 
