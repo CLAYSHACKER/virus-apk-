@@ -1,6 +1,7 @@
-# virus-apk
+#virus-apk
+
 :) CLAYS HACKER 
-NGUNGUN SISTEMA ES SEGURO  
+NINGUN SISTEMA ES SEGURO  
 
 TUTORIAL EN YOUTUBE:
 
@@ -16,4 +17,4 @@ GRUPO DE TELEGRAM :
 
 https://t.me/joinchat/L2zu1hKwOsgChvvEt4Svbg 
 
-https://t.me/joinchat/AAAAAE4XD-lima57zgs_PQ 
+https://t.me/joinchat/AAAAAE4XD-lima57zgs_PQ
